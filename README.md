@@ -9,4 +9,4 @@ Just after the San Diego Dragonboat Race concludes, the boats are lined up on sh
 ![Alt text](https://cdn.discordapp.com/attachments/745096048044933271/1026706559457304596/image0.jpg)
 During the San Diego Race, we placed 1st. 
 
-# JOIN JAWS OR ELSE (https://www.instagram.com/jawsdbt/)
+# JOIN JAWS OR ELSE [RIGHT HERE](https://www.instagram.com/jawsdbt/)

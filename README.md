@@ -7,6 +7,6 @@ Just after the San Diego Dragonboat Race concludes, the boats are lined up on sh
 
 ## Picture 2: DragonBoats being raced
 ![Alt text](https://cdn.discordapp.com/attachments/745096048044933271/1026706559457304596/image0.jpg)
-During the San Diego Race, we placed 1st. 
+During the San Diego Race, we placed 2nd. 
 
-# JOIN JAWS OR ELSE [RIGHT HERE](https://www.instagram.com/jawsdbt/)
+# JOIN JAWS [RIGHT HERE](https://www.instagram.com/jawsdbt/)
